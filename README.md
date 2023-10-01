@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **akashsolanki292@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1c7ZWhsJCc9HgQJDQB-AfHj8iBx0eVtAo/view?usp=drive_link](https://drive.google.com/file/d/1c7ZWhsJCc9HgQJDQB-AfHj8iBx0eVtAo/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1c7ZWhsJCc9HgQJDQB-AfHj8iBx0eVtAo/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
